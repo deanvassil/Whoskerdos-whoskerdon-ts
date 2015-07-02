@@ -1,2 +1,3 @@
 # Whoskerdos-whoskerdon-ts
 My first repository, can ya dig it.
+I'm just a barbie girl trying to make my way in this world full of bratz dolls. Just kidding everyone, hi I'm Dean. Also known as James Dean, thedeanerbaby, a Deanie in a bottle, or Hercules. 20 years old, Vegas is where I stay (for now, the desert can only fry your brain for so long before you've had enough) trying to become a full time front end developer. I like to skateboard, sing & play guitar. Music is life. Water and food are also nice sometimes I guess...
